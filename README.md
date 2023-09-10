@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **Cloud Engineering,Software Dev,Web Dev...**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Y0BU34my6NFA3lIsyBXLnev_mmrpxHGW/view](https://drive.google.com/file/d/1Y0BU34my6NFA3lIsyBXLnev_mmrpxHGW/view)
+- 📄 Know about my experiences: [https://drive.google.com/file/d/1Y0BU34my6NFA3lIsyBXLnev_mmrpxHGW/view](https://drive.google.com/file/d/1Y0BU34my6NFA3lIsyBXLnev_mmrpxHGW/view)
 
-- ⚡ Fun fact **I have a high score of 5.4m on Subway Surfers**
+- ⚡ Fun fact: **I have a high score of 5.4m on Subway Surfers**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
